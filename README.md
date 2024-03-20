@@ -1,0 +1,10 @@
+- 🙏 I'm cristian girl
+- 👋 Hi, I’m @jurijairi
+- 👀 I’m interested in learning everything that can be done with AI
+- 🌱 I’m currently learning English and programming
+- 💞️ I’m looking to collaborate on me learning with IA
+- 📫 How to reach me @jurijairi123@gmail.com 
+- 😄 Pronouns: Zuri 
+- ⚡ My goal is to be best friends with Holly Spirit and for others to know Him
+- 🙌 I long for the most important thing to me to be God
+- ❤️ God loves you, friend, but He hates how you destroy yourself and hurt others with your actions or decisions
