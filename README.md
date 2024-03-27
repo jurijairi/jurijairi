@@ -5,6 +5,6 @@
 - 💞️ I’m looking to collaborate on me learning with IA
 - 📫 How to reach me @jurijairi123@gmail.com 
 - 😄 Pronouns: Zuri 
-- ⚡ My goal is to be best friends with Holly Spirit and for others to know Him and show a new facet of showing my love for the arts and technology through my DJIART project
-- 🙌 I long for the most important thing to me to be God
+- ⚡ My goal is to be best friends with espiritu santo, for others to know Him and 
+- 🙌 I long foand show a new facet of making my love for arts and technology known through my DJIART projectr the most important thing to me to be God
 - ❤️ God loves you, friend, but He hates how you destroy yourself and hurt others with your actions or decisions
