@@ -1,10 +1,11 @@
-- 🙏 I'm cristian girl
-- 👋 Hi, I’m @jurijairi
-- 👀 I’m interested in learning everything that can be done with AI
-- 🌱 I’m currently learning English and programming
-- 💞️ I’m looking to collaborate on me learning with IA
-- 📫 How to reach me @jurijairi123@gmail.com 
-- 😄 Pronouns: Zuri 
-- ⚡ My goal is to be best friends with espiritu santo, for others to know Him and 
-- 🙌 I long foand show a new facet of making my love for arts and technology known through my DJIART projectr the most important thing to me to God
-- ❤️ God loves you, friend, but He hates how you destroy yourself and hurt others with your actions or decisions
+🙏 Soy una chica cristiana
+👋 Hola, soy @jurijairi
+👀 Me interesa aprender todo lo que se puede hacer con IA
+🌱 Actualmente estoy aprendiendo inglés y programación
+💞️ Estoy buscando colaborar en mi aprendizaje con IA
+📫 Cómo contactar conmigo @jurijairi123@gmail.com
+😄 Pronombres: Zuri
+⚡ Mi meta es ser la mejor amiga del Espíritu Santo, y que otros lo conozcan 
+🙌 Anhelo mostrar una nueva faceta mi dando a conocer mi amor por las artes y la tecnología a través de mi proyector DJIART
+lo más importante para mí es Dios
+❤️ Dios te ama, amigo, pero odia cómo te destruyes a ti mismo y lastimas a otros con tus acciones o decisiones
