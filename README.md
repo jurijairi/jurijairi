@@ -6,5 +6,5 @@
 - 📫 How to reach me @jurijairi123@gmail.com 
 - 😄 Pronouns: Zuri 
 - ⚡ My goal is to be best friends with espiritu santo, for others to know Him and 
-- 🙌 I long foand show a new facet of making my love for arts and technology known through my DJIART projectr the most important thing to me to be God
+- 🙌 I long foand show a new facet of making my love for arts and technology known through my DJIART projectr the most important thing to me to God
 - ❤️ God loves you, friend, but He hates how you destroy yourself and hurt others with your actions or decisions
